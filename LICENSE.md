@@ -1,4 +1,4 @@
-
+Experience murderers vs sheriffs 2 like never before with murderers vs sheriffs 2 elite Script, the #1 Script. Includes teleport and auto-heal for
 
 
 
